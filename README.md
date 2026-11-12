@@ -1,0 +1,2 @@
+# workbench-assets-292156da31984f798d63d9e19ab32adf
+Workbench team assets; registration 292156da31984f798d63d9e19ab32adf
